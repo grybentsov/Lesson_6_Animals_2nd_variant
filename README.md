@@ -1,0 +1,1 @@
+# Lesson_6_Animals_2nd_variant
